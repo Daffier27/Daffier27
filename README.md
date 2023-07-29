@@ -14,7 +14,7 @@ En mi cuenta de GitHub, podrás encontrar mi portafolio en constante evolución.
 
 Si estás interesado en colaborar conmigo, mejorar algún proyecto o tienes alguna propuesta, no dudes en contactarme. Estoy abierto a nuevas oportunidades y emocionado por trabajar en equipo. 🤗
 
-¡Me encataria  escuchar tus ideas y aprender de ti! Puedes contactarme por correo electrónico en [email](mailto:julianmoring5@gmail.com) o a traves de mi [linkedin](https://www.linkedin.com/in/juli%C3%A1n-mor%C3%ADn-gonz%C3%A1lez-769409247/) 📩
+¡Me encataria  escuchar tus ideas y aprender de ti! Puedes contactarme por correo electrónico en [email](mailto:julianmoring5@gmail.com) o a traves de mi [linkedin](https://www.linkedin.com/in/juli%C3%A1n-mor%C3%ADn-gonz%C3%A1lez-67b598277/) 📩
 
 ¡Gracias por visitar mi cuenta de GitHub! ✨
 
